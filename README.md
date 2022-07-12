@@ -1,4 +1,3 @@
-- 👋 Hi, I’m @FaridJRShah
+- 👋 Hi, I’m @Farid Shahmohamadi
 - 📚 Highschool Student
-- 🌱 I’m currently learning how to live
 - 📫 How to reach me farid.shahmohamdy@gmail.com
