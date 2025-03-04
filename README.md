@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Farid Shahmohamadi
-- 📚 Highschool Student
-- 📫 How to reach me farid.shahmohamdy@gmail.com
+- 📚 Studing IE in SUT
+- 📫 How to reach me farid.shahmohammadi2006@gmail.com
